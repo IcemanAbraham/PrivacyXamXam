@@ -1,4 +1,4 @@
-# Politique de confidentialité
+# Politique de confidentialité XamXam
 
 XamXam Ibrahima Sonko
 
